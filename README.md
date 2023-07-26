@@ -27,3 +27,4 @@ This repository contains all the submitted patch files of the various tasks assi
 ---
 #### My Certificate of Completion
 ![New](https://user-images.githubusercontent.com/40789486/83999923-5a5ad900-a981-11ea-8b79-1c918da0e279.png)
+![JPMORGAN CHASE   Co_Internship_page-0001](https://github.com/Pxttx13/JPMorgan_Chase_Virtual_Experience/assets/93585364/6af62d87-307d-459b-9848-0f21a834b327)
